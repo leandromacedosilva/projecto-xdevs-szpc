@@ -18,6 +18,8 @@ frontend mentor
 dev challengers
 
 
+https://www.youtube.com/watch?v=nwK_aqcBUCo
+
 https://devemdobro.com/nivel-3/
 
 
